@@ -1,0 +1,1 @@
+After you have downloaded the file open discord and make sure you have better discord on,go to the plugins section a click open plugins folder after that drag the theme to the themes folder and after that enable the theme your done Enjoy:)
